@@ -1,0 +1,7 @@
+# **Bushcrafting**
+## What is bushcrafting?
+### Bushcrafting is the knowledge and use of basic tools required to survive in an outdoor environment. This often includes building ones own shelter, creating fires and fire pits for cooking, steriziling water without store-bought products, and staying warm in inclement weather. Bushcrafting can be simple or advanced, including things such as building simple fires and basic shelter, all the way to much more extensive techniques, which includes making fireplaces, stoves, and basic shelters with windows and doors. Bushcrafting is a very unique skill that humans have been practicing for as long as our species has been around. It's absolutely amazing to watch what some people are capable of. Below is a list of links to youtube videos and channels that I've personally picked out.  
+* ### [Solo Overnight Building a Sandbag Shelter In the Woods](https://youtu.be/6pL-1GXKFHs?t=1559)  
+* ### [Solo Overnight Bushcraft Tent Using Plastic Wrap - Survival Alone in Forest](https://youtu.be/mcJt0w8kvQ0)  
+* ### [-34C FREEZING COLD WINTER CAMPING ALONE in a HOT TENT](https://youtu.be/RI50PcJYbJQ)  
+![DIY Bunker](https://i.ytimg.com/vi/6pL-1GXKFHs/maxresdefault.jpg)
